@@ -1,4 +1,4 @@
-# Lucas Augusto
+# About me
 
 <a href="https://twitter.com/lucasaugusts_"><img src="https://image.flaticon.com/icons/svg/889/889228.svg" width=30px></a>
 
